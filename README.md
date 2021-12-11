@@ -1,0 +1,2 @@
+# Virtualtryon
+Virtual trial room with augmented reality is the advancement and technological innovation in the fashion industry. “Try before you buy” worked years ago for efficient customer engagement in outfit stores. Now the concept is gradually being replaced via virtual trial rooms which let customers try clothes virtually that translates into eliminating long queues and waiting periods in front of trail rooms.
